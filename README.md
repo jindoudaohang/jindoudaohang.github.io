@@ -1,1 +1,1 @@
-# jindoudaohang.github.io
+[➡️ 金豆导航](https://jindoudaohang.github.io/)
